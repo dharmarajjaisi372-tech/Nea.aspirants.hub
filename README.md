@@ -1,1 +1,1 @@
-# nea-aspirants-hub
+# Nea Aspirants Hub
